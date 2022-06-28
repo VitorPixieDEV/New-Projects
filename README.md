@@ -1,4 +1,4 @@
-# Livro das Melhores Seed :herb: 
+# New-Projects em trabalho funcional e emocional: 
 
-### Olá povo de meu coração aqui vai as melhores seeds
+### Aqui estaram os projetos elaborados internamente, toda e qualquer interação construtiva é aceita, quem sabe daqui não sai o proximo milhão!?
 
